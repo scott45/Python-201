@@ -1,0 +1,1 @@
+https://mediumcom/the-andela-way/idiomatic-python-coding-the-smart-way-cc560fa5f1d6.
